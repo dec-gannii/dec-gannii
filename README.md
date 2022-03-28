@@ -1,6 +1,6 @@
 <div align="center">
   
- ### 🌱 Emily Kim 🌱 
+ ### 🌱 Ga Eun 🌱 
 <div align="center">
   
 📧 **<decrkdms@gmail.com>** 📧 
